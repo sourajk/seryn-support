@@ -4,7 +4,7 @@ If you have any questions, feedback, or need help, feel free to reach out.
 
 ## Contact
 
-Email: your@email.com
+Email: samthebuilder95@gmail.com
 
 We typically respond within 24–48 hours.
 
