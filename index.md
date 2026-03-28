@@ -1,4 +1,4 @@
-# Seryn Support
+# Seryn Privacy Policy
 
 If you have any questions, feedback, or need help, feel free to reach out.
 
